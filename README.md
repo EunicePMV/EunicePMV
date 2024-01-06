@@ -30,3 +30,7 @@ My aspirations extend beyond personal growth; I strive to foster collaboration a
 
 ### 🔮 Mystical Metrics
 ![EunicePMV's GitHub stats](https://github-readme-stats.vercel.app/api?username=EunicePMV&show_icons=true&theme=codeSTACKr)
+
+[![](https://visitcount.itsvg.in/api?id=EunicePMV&label=Enchanted%20Gaze&color=12&icon=5&pretty=true)](https://visitcount.itsvg.in)
+
+#
