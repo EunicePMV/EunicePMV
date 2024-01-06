@@ -6,6 +6,8 @@ I am Eunice Patricia M. Villanueva, a self-motivated individual fueled by an unw
 
 My aspirations extend beyond personal growth; I strive to foster collaboration and contribute to the creation of a healthier, more vibrant community. With a belief in the power of collective efforts, I am dedicated to leveraging my skills and knowledge to make a positive impact. Through my experiences, I have come to understand the importance of collaboration in achieving common goals and building a strong, supportive network.
 
+Like a Growth Crafter, embodying my commitment to actively craft and nurture growth, both personally and within the community.  As Growth Crafter, I am on a mission to not only enhance my skills but also to contribute to the collective well-being, fostering collaboration and creating a positive impact. Connect with me to thrive a collaborative community through tech.
+
 ---
 ### 🪄 Tech Wand
 
