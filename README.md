@@ -4,7 +4,7 @@
 
 I’m Eunice Patricia M. Villanueva, self-motivated and passionate individual dedicated to continuous growth, driven by my willingness to help my community who assisted me to become who I am right now. I aim to achieve a cooperative and healthier community. 
 
-I am a Growth Crafter I leverage my knowledge and tech stack to actively promote and create positive impact in my community.
+I am a Growth Crafter, I leverage my knowledge and tech stack to actively promote and create positive impact in my community.
 
 Let's connect and collaborate, focused on improving our quality of living through technological innovation.
 
